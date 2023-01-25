@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently Studying at **Palestine Technical University-Kadoorie**
 
-- 🌱 I’m currently learning **PHP.**
+- 🌱 I’m currently learning **ٌReactJS.**
 
 - 📫 How to reach me **aymanayman2622002@gmail.com**
 
