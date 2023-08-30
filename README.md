@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **aymanayman2622002@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_Bz-DaacVHBhpVWv57WZ13CAao_bnGaS/view?usp=sharing](https://drive.google.com/file/d/1_Bz-DaacVHBhpVWv57WZ13CAao_bnGaS/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1_Bz-DaacVHBhpVWv57WZ13CAao_bnGaS/view?usp=sharing](https://drive.google.com/file/d/17EOF9Bvyq8rwWKY4z2iQGSzNtccRI5Fp/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
