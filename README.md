@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently Studying at **Palestine Technical University-Kadoorie**
 
-- 🌱 I’m currently learning **QA Testing using Cypress.**
+- 🌱 I’m currently learning **Laravel fullstack.**
 
 - 📫 How to reach me **aymanayman2622002@gmail.com**
 
